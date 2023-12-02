@@ -1,0 +1,2 @@
+# ilkdeneme
+pıffff
